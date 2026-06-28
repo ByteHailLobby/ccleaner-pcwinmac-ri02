@@ -1,4 +1,4 @@
-# 
+# Seguro CCleaner fluxo de trabalho para Mac OS | VIP CCleaner fluxo de trabalho para PC Windows. Com organizacao de area de trabalho e historico de versoes — otimizado para máximo desempenho em cada plataforma.
 
 
 
